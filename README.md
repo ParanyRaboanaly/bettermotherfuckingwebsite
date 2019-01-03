@@ -1,0 +1,1 @@
+https://paranyraboanaly.github.io/bettermotherfuckingwebsite/
